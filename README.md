@@ -1,2 +1,0 @@
-# Mayorking
-Graphic Designer
